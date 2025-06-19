@@ -8,3 +8,9 @@ The exam board I did was OCR B. The five topics I covered were these: Making of 
 Under Nazi Germany(1929 -1945) and History Around Us(I prefer not to mention my site of study).
 
 Sport Studies was the Cambridge nationals.
+
+THE BUSINESS EXAM BOARD IS OCR.
+
+I did AQA for Combined Science Higher, English Lit.
+
+I did Edexcel for Maths Higher.
